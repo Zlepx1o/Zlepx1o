@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Zlepx1o
+- 👀 I’m Working on FiveM Development Since 2020
+- 🔐 I'm a Certified Cyber Security Professional 
+- 📫 Mail: Zlepx1o@proton.me (business only)
+- 📫 Discord: zlepx1o_dev
+- ⚡ You will only appreciate something when you lose it!!!
